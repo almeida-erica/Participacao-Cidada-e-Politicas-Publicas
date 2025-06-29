@@ -44,4 +44,4 @@ Mais do que um direito, a participação é um dever de todos que desejam transf
 
 
 Declaração de autoria
-Este relatório foi elaborado por mim, Érica Almeida**, como parte das atividades complementares do curso de Gestão Pública.
+Este relatório foi elaborado por mim, Érica Almeida, como parte das atividades complementares do curso de Gestão Pública.
